@@ -1,1 +1,1 @@
-This is a new coder attemptting to get people happier.
+May u happy and rich in mind.
